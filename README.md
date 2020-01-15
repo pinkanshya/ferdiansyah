@@ -1,0 +1,2 @@
+# ferdiansyah
+g ada apa"
